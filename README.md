@@ -1,11 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F72121&size=25&duration=7000&center=true&vCenter=true&multiline=true&height=100&lines=%F0%9F%91%8F+ABAL+TERA+PAPPA+FB-KING%F0%9F%91%8F)](https://git.io/typing-svg)
-
 <img src="https://github.com/FB-KING/FB-KING/blob/main/received_137519009225723.gif" />
 
 - Contact Me **blackmafia.hahaha@gmail.com**
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=😍+Assalamu+Alaikum+🖤;+👿+It's+Not+Only+Just+Name+,;It's+A+Brand+FB-KING+,,👿;Thank+You+Everyone)](https://git.io/typing-svg)
-
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=fb-king" alt="fb-king" /></a> </p>
 

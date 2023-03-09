@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F72121&size=25&duration=7000&center=true&vCenter=true&multiline=true&height=100&lines=%F0%9F%91%8F+WLC+FB-KING+PROFILE+%F0%9F%91%8F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F72121&size=25&duration=7000&center=true&vCenter=true&multiline=true&height=100&lines=%F0%9F%91%8F+ABAL+TERA+PAPPA+FB-KING%F0%9F%91%8F)](https://git.io/typing-svg)
 
 <img src="https://github.com/FB-KING/FB-KING/blob/main/received_137519009225723.gif" />
 
@@ -6,7 +6,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=😍+Assalamu+Alaikum+🖤;+👿+It's+Not+Only+Just+Name+,;It's+A+Brand+FB-KING+,,👿;Thank+You+Everyone)](https://git.io/typing-svg)
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=alifvau&label=Profile%20views&color=0e75b6&style=flat" alt="fb-king" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=FB-KING&label=Profile%20views&color=0e75b6&style=flat" alt="fb-king" /> </p>
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=fb-king" alt="fb-king" /></a> </p>
 
